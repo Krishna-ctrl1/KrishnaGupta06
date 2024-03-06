@@ -15,7 +15,7 @@
 
 - 💬 You can ask my about *Data Science AI/ML, Blockchain or Any-Tech related Stuff*
 
-- 📫 Want to have a conversation?! Here's my E-mail *krishna.gpt607ikr@gmail.com*
+- 📫 Want to have a conversation?! Here's my E-mail *krishna.gpt607@gmail.com*
 
 ## 💬 Connet with me:
 <p align="left">
